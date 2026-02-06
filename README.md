@@ -1,2 +1,1 @@
-# shitballs210.github.io
-cool stuff and stuff
+Warning people about the death of Windows 10
